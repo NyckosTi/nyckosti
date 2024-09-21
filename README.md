@@ -76,6 +76,7 @@ Habilidades, Tecnologias e Ferramentas
 
 📫 Connect with me:
 - Email: [nyckos@nyckosti.com.br](nyckos@nyckosti.com.br)
-- Twitter: [@da_crypto_freak](https://twitter.com/nyckosti)
-- YouTube: [Tunisian-UL](https://www.youtube.com/@nyckosti)
-- FB: [FB.com/TNCSOM](https://www.facebook.com/nyck0sti/)
+- Instagram: [@nyckos.ti](https://instagram.com/nyckos.ti)
+- Linkdin: [@nyckos.ti](https://www.linkedin.com/in/nyckosti)
+- YouTube: [nyckosti](https://www.youtube.com/@nyckosti)
+- FB: [FB.com/nyck0sti](https://www.facebook.com/nyck0sti)
