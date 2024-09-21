@@ -75,9 +75,9 @@ Habilidades, Tecnologias e Ferramentas
 
 
 📫 Connect with me:
-- Email: [4stalkers@protonmail.com](mailto:4stalkers@protonmail.com)
-- Twitter: [@da_crypto_freak](https://twitter.com/da_crypto_freak)
-- YouTube: [Tunisian-UL](https://www.youtube.com/@Tunisian-UL)
-- Buy Me a Coffee: [Buy Me a Coffee](https://buymeacoffee.com/maxamin)
-- Ba9chich : [ba9chich.com/UL-Tunisia](https://ba9chich.com/UL-Tunisia)
-- FB: [FB.com/TNCSOM](https://www.facebook.com/TNCSOM/)
+- Email: [4stalkers@protonmail.com](nyckos@nyckosti.com.br)
+- Twitter: [@da_crypto_freak](https://twitter.com/nyckosti)
+- YouTube: [Tunisian-UL](https://www.youtube.com/@nyckosti)
+- Buy Me a Coffee: [Buy Me a Coffee](https://buymeacoffee.com/nyckosti)
+- Ba9chich : [ba9chich.com/UL-Tunisia](https://ba9chich.com/nyckosti)
+- FB: [FB.com/TNCSOM](https://www.facebook.com/nyck0sti/)
